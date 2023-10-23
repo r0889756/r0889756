@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @r0889756
+- 🌱 I’m currently learning Programming
+- 💞️ I’m looking to collaborate
